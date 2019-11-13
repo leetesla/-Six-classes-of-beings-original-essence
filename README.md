@@ -1,1 +1,1 @@
-# -Six-classes-of-beings-original-essence
+# Six-classes-of-beings-original-essence
